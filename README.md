@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sal-72
-- 👀 I’m interested in codig, hacking sports and reading.
+- 👀 I’m interested in coding, hacking sports and reading.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me contact sahen.shan09@gmail.com
